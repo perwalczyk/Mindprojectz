@@ -1,0 +1,2 @@
+# Mindprojectz
+For Mindprojectz gruppeprosjekt
